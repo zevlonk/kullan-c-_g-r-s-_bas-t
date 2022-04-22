@@ -1,0 +1,1 @@
+# kullan-c-_g-r-s-_bas-t
